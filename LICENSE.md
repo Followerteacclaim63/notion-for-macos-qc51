@@ -1,4 +1,4 @@
-#  
+#  Notion for macOS automatic Macro: cloud backup & real-time editing offers the most advanced Notion for macOS macro, with cloud backup and real-time editing. Ideal for
 
 
 
